@@ -1,4 +1,4 @@
-# Why
+# Why am I starting this blog
 
 I decided to create a blog because I have some random poems and written prose from my younger days that I am unsure where to share. I don't care if they are good or not. I've
 seen many artists (I don't consider myself one) that write, draw, or compose many stuff that they never share. That's ok we all want to share the best we do, and build up confidence. 
